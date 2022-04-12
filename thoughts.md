@@ -10,3 +10,5 @@ Two new strategies to try during Mod 0
 
 Shout Out!
 Shout out to Leigh Larson, whom I have never met in person, but took the time to message extensively about her experience while at Turing and the ways that it has changed her life. She was an immense encouragement to me when I was considering making the commitment to change careers.
+
+My pets bring me comfort and peace.
